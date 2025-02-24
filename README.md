@@ -9,3 +9,4 @@
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/judedcunha/)
 - 😄 Pronouns: He/Him
 
+- 🎲 I play DND when I have the time, and many other video games. 
